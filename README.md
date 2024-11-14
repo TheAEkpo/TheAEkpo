@@ -10,4 +10,4 @@
 
 ⚡ Fun fact: I’m a travel enthusiast with a love for wine tasting and trying new cuisines.
 
-📫 Reach me at: aekpo@outlook.com
+📫 Reach me at: a.ekpo@outlook.com
