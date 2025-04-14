@@ -6,7 +6,7 @@
 
 👯 Open to collaborating on Machine Learning and Data Science projects across various sectors, from healthcare to tech.
 
-💡 For an overview of my work, please visit my website: www.agnesekpo.com/project
+💡 For an overview of my work, please visit my website: www.agnesekpo.com/projects
 
 ⚡ Fun fact: I’m a travel enthusiast with a love for wine tasting and trying new cuisines.
 
